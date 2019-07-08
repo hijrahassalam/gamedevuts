@@ -17,3 +17,6 @@ Nur Hijrah As Salam (K3517047)
 Siti Arum Rofiah (K3517057)
 Indah Khoirun Nisa  (K3517027)
 Dhewi Rahmawati (K3517017)
+
+Pendidikan TIK 2017
+Universitas Sebelas Maret 
